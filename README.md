@@ -1,2 +1,2 @@
 # Picture
-全网超低会员及教程地址：http://anran.ga
+全网超低会员及教程地址：https://omga.shop
